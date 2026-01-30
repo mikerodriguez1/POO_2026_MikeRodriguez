@@ -1,2 +1,8 @@
-# POO_2026_MikeRodriguez
-TAREAS Y ESE ROYO 
+
+                  Jose Manuel Rodriguez Rodriguez
+          numero de control 242240038 | 🎓 Ing. en Sistemas
+ 
+      |\      _,,,---,,_
+ZZZzz /,`.-'`'    -.  ;-;;,_
+     |,4-  ) )-,_. ,\ (  `'-'
+    '---''(_/--'  `-'\_)
